@@ -1,4 +1,4 @@
-* Todas putas
+# Todas putas
 
 La ministra de igualdad y vicepresidenta del gobierno español, siguiendo la estela europea, encabezada por suecia, y la propuesta de Unidos Podemos, anuncia que se establecerá por ley que cualquier relación sexual que no cuente con un /sí/ expreso será considerado violación.
 
