@@ -1,6 +1,6 @@
 # Dicen que no es fascismo
 
-![](http://www.arnalballester.com/web/wp-content/uploads/1812.jpg)
+![](https://1.bp.blogspot.com/_oWUa9-7OzZg/TUcn9fR3YpI/AAAAAAAAAA4/NAT-Y7-IEp0/s1600/u.jpg)
 
 Unidad nacional, sociedad estable y ordenada son los valores supremos
 del fascismo. También lo son de la derecha en España, porque en España
