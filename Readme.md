@@ -1,3 +1,42 @@
+# Los hijos de internet
+
+Los hijos de internet no siempre se reconocen a simple vista. A veces
+esperan junto a ti en la parada del autobús, o son tu padre, o sirven
+hamburguesas para pagarse los estudios, o salen a correr tres días a
+la semana porque están preparando una maratón. Sin embargo, entorno a
+su cuerpo de élite, los hackers, la industria ha creado una imagen que
+viene a sustituir al viejo pirata, a caballo entre la libertad y el
+crimen. A los hijos de internet los hackers le protegen mientras
+duermen, y por ello, aman a los hackers: les dan la tranquilidad
+necesaria para soñar.
+
+Los hijos de internet comparten un lema: *la información quiere
+ser libre*. Su reino no es de este mundo. Es un reino abstracto, que
+viaja a través de un éter (la ethernet, tres veces vertebrada: por la
+academia, por el ejército y por las corporaciones privadas). La
+industria ha tratado desde entonces de tomar la Red por asalto, pero
+los hijos de internet no se lo han permitido.
+
+Y hoy, esos hijos de Internet, los que habitamos la Frontera
+Electrónica desde la infancia de nuestras conciencias, estamos en pie
+de guerra: uno de los nuestros ha caído en manos enemigas. Su vida
+peligra.
+
+Hackers del mundo, criptoanarquistas, hombres buenos, oíd el grito de
+júbilo de las hienas. Rugid, y que vuestro rugido se oiga en los
+confines del ciberespacio. Haced que tiemble la Red de Redes. Y si no
+es así, que se confundan los nodos y se haga el caos.
+
+Hijos de internet, pelead por vuestro hermano Assange, que se enfrenta
+a la muerte por parte de los sicarios de la industria. No le olvidéis
+en el cadalso, cuando él ha dado su vida por defender y dar honor a
+nuestro lema:
+
+*La información quiere ser libre*
+
+![](http://www.australianbusinesstimes.com/wp-content/uploads/2012/08/julian-assange-protests-arrests-london_thumb.jpg)
+
+
 # Dicen que no es fascismo
 
 ![](https://1.bp.blogspot.com/_oWUa9-7OzZg/TUcn9fR3YpI/AAAAAAAAAA4/NAT-Y7-IEp0/s1600/u.jpg)
